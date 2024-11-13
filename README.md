@@ -7,7 +7,7 @@
  
  <p align="center">  
   <a href="">
-    <img alt="PRINCE" width="600" height="350" src="https://i.imgur.com/iI086tX.jpeg">
+    <img alt="PRINCE" width="600" height="350" src="https://cdn.ironman.my.id/i/75q674.jpg">
   </a>
 </p>
 
