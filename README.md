@@ -1,7 +1,7 @@
   
 ![PRINXE-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MUZAMIL+MD+💙)
   
-<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg.jpg'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 
  
