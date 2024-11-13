@@ -1,8 +1,8 @@
   
-![PRINXE-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MD+💙)
+![PRINXE-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MUZAMIL+MD+💙)
   
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
 
  
  <p align="center">  
@@ -27,8 +27,8 @@
 
  <h1 align="center">💠𝑷𝑹𝑰𝑵𝑪𝑬-𝑴𝑫-𝑩𝑶𝑻💠</h1>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
 
 ### 𝘾𝙇𝙄𝘾𝙆 𝘼𝙉𝘿 𝙒𝘼𝙄𝙏 𝙏𝙊 𝙊𝙋𝙀𝙉 𝙏𝙃𝙀 𝙎𝙄𝙏𝙀
 
@@ -49,8 +49,8 @@
 
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
  
 ### <br>
 <p align="left">
@@ -73,19 +73,19 @@
 
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
 
 ### 🟢 𝙎𝙐𝙋𝙋𝙊𝙍𝙏 𝙂𝙍𝙊𝙐𝙋 𝙇𝙄𝙉𝙆 🟢
    <p align="left">
-      <a href="https://chat.whatsapp.com/Jo5bmHMAlZpEIp75mKbwxP"><img height= "30" length= "10" title="Author" src="https://img.shields.io/badge/Support Group-25D366?style=for-the-badge&logo=whatsApp&logoColor=white"></a>
+      <a href="https://chat.whatsapp.com/IxQOkROMFGeLPqSSeMqE8Q"><img height= "30" length= "10" title="Author" src="https://img.shields.io/badge/Support Group-25D366?style=for-the-badge&logo=whatsApp&logoColor=white"></a>
      <p/>
        
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-### 𝗟𝗜𝗖𝗘𝗡𝗦𝗘: [Clikc here](https://github.com/PRINCE-GDS/PRINXE-MD/blob/main/LICENSE)
- <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+### 𝗟𝗜𝗖𝗘𝗡𝗦𝗘: [Clikc here](https://github.com/PRINCE-MUZAMIL-MD/blob/main/LICENSE)
+ <a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+  <a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
 ### 💠 [`𝘼𝙑𝘼𝙄𝙇𝘼𝘽𝙇𝙀 𝙇𝘼𝙉𝙂𝙐𝘼𝙂𝙀𝙎 𝙁𝙊𝙍 𝙋𝙍𝙄𝙉𝘾𝙀 𝘽𝙊𝙏`]
 #### 🌐 Arabic = ar 
 #### 🌐 Urdu = ur
@@ -93,12 +93,12 @@
 #### 🌐 Bahasa Indonesia = id
 #### 🌐 Portuguese = pt
 #### 🌐 Spanish = es
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
 
 
 
