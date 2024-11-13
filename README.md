@@ -73,19 +73,19 @@
 
 
 
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 
 ### 🟢 𝙎𝙐𝙋𝙋𝙊𝙍𝙏 𝙂𝙍𝙊𝙐𝙋 𝙇𝙄𝙉𝙆 🟢
    <p align="left">
       <a href="https://chat.whatsapp.com/IxQOkROMFGeLPqSSeMqE8Q"><img height= "30" length= "10" title="Author" src="https://img.shields.io/badge/Support Group-25D366?style=for-the-badge&logo=whatsApp&logoColor=white"></a>
      <p/>
        
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 ### 𝗟𝗜𝗖𝗘𝗡𝗦𝗘: [Clikc here](https://github.com/PRINCE-MUZAMIL-MD/blob/main/LICENSE)
- <a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-  <a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+ <a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+  <a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 ### 💠 [`𝘼𝙑𝘼𝙄𝙇𝘼𝘽𝙇𝙀 𝙇𝘼𝙉𝙂𝙐𝘼𝙂𝙀𝙎 𝙁𝙊𝙍 𝙋𝙍𝙄𝙉𝘾𝙀 𝘽𝙊𝙏`]
 #### 🌐 Arabic = ar 
 #### 🌐 Urdu = ur
@@ -93,12 +93,12 @@
 #### 🌐 Bahasa Indonesia = id
 #### 🌐 Portuguese = pt
 #### 🌐 Spanish = es
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 
 
 
