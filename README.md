@@ -1,5 +1,5 @@
 
-![PRINXE-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MUZAMIL+MD+💙)
+![PRINXE-MUZAMIL-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MUZAMIL+MD+💙)
  <p align="center">  
   <a href="">
     <img alt="PRINCE" width="600" height="350" src="https://cdn.ironman.my.id/i/75q674.jpg.jpg">
@@ -9,7 +9,7 @@
 
 
 <p align="center">
-<a href="https://github.com/PRINCE-GDS/PRINXE-MD"><img title="Author" src="https://img.shields.io/badge/𝑷𝑹𝑰𝑵𝑪𝑬 𝑴𝑫 𝑩𝑶𝑻-black?style=for-the-badge&logo=github"></a>
+<a href="https://github.com/PRINCE-GDS/PRINXE-MD"><img title="Author" src="https://img.shields.io/badge/𝑷𝑹𝑰𝑵𝑪𝑬 𝑴𝑼𝒁𝑨𝑴𝑰𝑳 𝑴𝑫 𝑩𝑶𝑻-black?style=for-the-badge&logo=github"></a>
 <p/>
 
 <p align="center">
@@ -20,7 +20,7 @@
 </p>
 
 
- <h1 align="center">💠𝑷𝑹𝑰𝑵𝑪𝑬-𝑴𝑫-𝑩𝑶𝑻💠</h1>
+ <h1 align="center">💠𝑷𝑹𝑰𝑵𝑪𝑬-𝐌𝐔𝐙𝐀𝐌𝐈𝐋-𝑴𝑫-𝑩𝑶𝑻💠</h1>
 
 <a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
