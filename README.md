@@ -27,8 +27,8 @@
 
  <h1 align="center">💠𝑷𝑹𝑰𝑵𝑪𝑬-𝑴𝑫-𝑩𝑶𝑻💠</h1>
 
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
 
 ### 𝘾𝙇𝙄𝘾𝙆 𝘼𝙉𝘿 𝙒𝘼𝙄𝙏 𝙏𝙊 𝙊𝙋𝙀𝙉 𝙏𝙃𝙀 𝙎𝙄𝙏𝙀
 
@@ -49,8 +49,8 @@
 
 
 
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
-<a><img src='https://cdn.ironman.my.id/i/75q674.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
+<a><img src='https://i.imgur.com/LyHic3i.gif.jpg'/></a>
  
 ### <br>
 <p align="left">
