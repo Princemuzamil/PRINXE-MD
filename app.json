@@ -2,7 +2,7 @@
   "name": "PRINXE-MUZAMIL-MD",
   "description": "PRINXE-MUZAMIL-MD A SUPER WHATSAPP USER BOT",
   "keywords": ["java", "bot", "whatsapp-bot", "whatsapp-automation"],
-  "repository": "https://github.com/Princemuzamil/PRINXE-MD/edit/main/app.json",
+  "repository": "https://github.com/Princemuzamil",
   
   "stack": "container",
   "env": {
