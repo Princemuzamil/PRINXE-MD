@@ -2,7 +2,7 @@
 ![PRINXE-MD](https://readme-typing-svg.demolab.com?font=Garamond&size=20&pause=998&color=skyblue&background=white&right=true&random=true&width=465&lines=HELLO+EVERYONE👋🏻;WELCOME+TO+PRINCE+MUZAMIL+MD+💙)
  <p align="center">  
   <a href="">
-    <img alt="PRINCE" width="600" height="350" src="https://i.imgur.com/LyHic3i.gif.jpg">
+    <img alt="PRINCE" width="600" height="350" src="https://cdn.ironman.my.id/i/75q674.jpg.jpg">
   </a>
 </p>
 
