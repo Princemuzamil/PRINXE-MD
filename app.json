@@ -54,7 +54,7 @@
     "DL_MSG": {
       "description": "Video downloader caption",
       "required": true,
-      "value": "💌--------------------PRINCE-ᴍUZAMIL----------------------💌"
+      "value": "💌--------------------PRINCE-MUZAMIL----------------------💌"
       },
     "STATUSVIEW": {
       "description": "Make it true if you want bot to view status",
